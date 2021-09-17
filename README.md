@@ -1,1 +1,1 @@
-Hello! I'm a Product Manager and Software Engineer in training 👨‍💻 .
+Hello! I'm a Software Product Manager who loves to code 👨‍💻 .
