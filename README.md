@@ -1,1 +1,1 @@
-Hello! I'm a Product Manager switching careers to Software Engineering 👨‍💻 .
+Hello! I'm a Product Manager and Software Engineer in training 👨‍💻 .
