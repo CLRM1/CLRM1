@@ -1,1 +1,1 @@
-Hello! I am a software engineering student at the Turing School of Software and Design. 
+Hello! I am a software developer and technical product manager. 
